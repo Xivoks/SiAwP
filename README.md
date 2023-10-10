@@ -1,1 +1,1 @@
-"# SiAwP" 
+Jan Brunow - 155130 - SiAwP - ćwiczenia
